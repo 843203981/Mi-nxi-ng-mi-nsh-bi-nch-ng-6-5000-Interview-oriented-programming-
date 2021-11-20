@@ -1,1 +1,1 @@
-# Mi-nxi-ng-mi-nsh-bi-nch-ng-6-5000-Interview-oriented-programming-
+Interview-oriented-programming-
